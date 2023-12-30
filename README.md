@@ -5,7 +5,7 @@
 ## 二、下载地址：
 1、官网下载：http://m.xianquzww.top 
 
-2、蓝奏云网盘：https://wwoa.lanzouv.com/idL1I1izwkli  密码：9s9s
+2、蓝奏云网盘：https://wwoa.lanzouv.com/iIsfd1jfttwb  密码：270b
 
 ## 三、使用指导：
     此APP下载安装后即可使用，支持的书源也不需要用户手动导入，每次启动APP时，APP会自动从后台下载最新的阅读书源，省去了用户寻找书源的痛苦。
