@@ -5,7 +5,7 @@
 ## 二、下载地址：
 1、官网下载：http://xqxs.top  (如果遇到前面的网址打不开，试下这个IP的：http://175.178.224.78) 
 
-2、蓝奏云网盘：https://wwoa.lanzouo.com/i30cU1lern8f  密码：5uex
+2、蓝奏云网盘：https://wwoa.lanpv.com/iIxEc1m9931g  密码：5ywb
 
 ## 三、使用指导：
     此APP下载安装后即可使用，支持的书源也不需要用户手动导入，每次启动APP时，APP会自动从后台下载最新的阅读书源，省去了用户寻找书源的痛苦。
